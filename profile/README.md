@@ -1,5 +1,5 @@
 ## Hi There 👋
-![2022-02-27_03 39 14](https://user-images.githubusercontent.com/96501232/204110479-fcd24cb3-95d2-473d-a16f-684ee040c5ed.png)
+![2022-02-27_03kk 39 14](https://user-images.githubusercontent.com/96501232/204110533-80b6d6ed-628d-40bb-be49-e1ca125afbce.png)
 # 
 
 ### Who we are
